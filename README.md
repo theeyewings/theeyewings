@@ -1,16 +1,14 @@
-## Hi there 👋
+Peak oh my days this stuff is weird to make look cool 
 
-<!--
-**theeyewings/theeyewings** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ok. everything you need to know is on my sp + rentry when i feel finished with it
+but here, pt info .
 
-Here are some ideas to get you started:
+c+h at any time !! i love it, don't worry man i dont care 
+(especially if you're cosplaying something of the same fandom :))
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+wawawawawa im chronically offtab, even if you whisper i might not see it ! sorry man i can't much help it, i sit with ponytown open and i return to it at random
+uuuhhhhhhh idk what else to put here i just needed extra info or whatever
+check sp for interests.slightly outdated i cant be bothered sorry i think
+meeooowww
+
+i might make this pretty one day i dont know man i just sit here
